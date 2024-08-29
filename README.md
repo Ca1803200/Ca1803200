@@ -8,6 +8,6 @@ meu nome e camila
 - ### entre em contato comigo ##
 - camilacarmo2026@gmail.com
 - batist_wy
-- soe estudante no ensino medio tcc
+- sou estudante no ensino medio tcc
 - tenho 16 anos
   🦋
